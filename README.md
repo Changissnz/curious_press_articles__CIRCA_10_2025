@@ -14,3 +14,4 @@ links to interesting press articles
 - https://www.tampabay.com/news/florida/2025/09/17/florida-judge-political-contributions-diana-tennis/ 
 - https://floridapolitics.com/archives/758181-casey-desantis-faced-handcuff-decision-during-law-enforcement-ride-along/
 - https://www.orlandosentinel.com/2025/09/24/be-the-difference-maker-desantis-announces-60m-in-florida-grants-for-fighting-cancer/ 
+- https://www.clickorlando.com/news/politics/2025/09/24/florida-gov-desantis-first-lady-surgeon-general-to-hold-news-conference-in-tampa/ 
