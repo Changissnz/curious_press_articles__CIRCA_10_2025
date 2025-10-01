@@ -8,3 +8,4 @@ links to interesting press articles
 - https://www.cnbc.com/2025/07/30/cnbcs-the-china-connection-newsletter-chinese-ai-companies-make-money.html?msockid=2a5443ee34376d5b04a65596351b6ce5
 - https://www.irishtimes.com/politics/2025/04/15/new-markets-to-be-explored-in-asia-and-canada-as-part-of-urgent-response-to-us-tariffs/ 
 - https://www.reuters.com/world/china/six-months-canadas-carney-faces-two-front-trade-war-with-little-leverage-2025-09-29/ 
+- https://www.cnn.com/2025/09/19/americas/kneecap-banned-canada-gaza-irish-rap-latam-intl
