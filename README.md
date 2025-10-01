@@ -12,3 +12,5 @@ links to interesting press articles
 - https://www.newsweek.com/ron-desantis-wifes-foundation-faces-criminal-probe-2075200
 - https://www.justice.gov/opa/pr/florida-nonprofit-founder-and-accountant-charged-stealing-over-100m-special-needs-victims 
 - https://www.tampabay.com/news/florida/2025/09/17/florida-judge-political-contributions-diana-tennis/ 
+- https://floridapolitics.com/archives/758181-casey-desantis-faced-handcuff-decision-during-law-enforcement-ride-along/
+- 
