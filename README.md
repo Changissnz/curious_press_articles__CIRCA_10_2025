@@ -13,4 +13,4 @@ links to interesting press articles
 - https://www.justice.gov/opa/pr/florida-nonprofit-founder-and-accountant-charged-stealing-over-100m-special-needs-victims 
 - https://www.tampabay.com/news/florida/2025/09/17/florida-judge-political-contributions-diana-tennis/ 
 - https://floridapolitics.com/archives/758181-casey-desantis-faced-handcuff-decision-during-law-enforcement-ride-along/
-- 
+- https://www.orlandosentinel.com/2025/09/24/be-the-difference-maker-desantis-announces-60m-in-florida-grants-for-fighting-cancer/ 
