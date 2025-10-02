@@ -16,3 +16,5 @@ links to interesting press articles
 - https://www.orlandosentinel.com/2025/09/24/be-the-difference-maker-desantis-announces-60m-in-florida-grants-for-fighting-cancer/ 
 - https://www.clickorlando.com/news/politics/2025/09/24/florida-gov-desantis-first-lady-surgeon-general-to-hold-news-conference-in-tampa/ 
 - https://news.virginia.edu/content/qa-how-ai-enhancing-scams-uva-expert-knows
+- https://breakingdefense.com/2025/07/anthropic-google-and-xai-win-200m-each-from-pentagon-ai-chief-for-agentic-ai/
+- 
